@@ -8,10 +8,3 @@
 
 #
 Мы запускаем регистрацию на бетатестирование. Пожалуйста, напишите свои контакты на адрес [NeuroStartUp@nsu.io](mailto:NeuroStartUp@nsu.io).#
-ffdlfkd;f;;df
-fd;ld;lfkg;dkf;gk;dflg;d
-d'f;d;fl;'df
-fdkdldf;df;
-
-
-fddfddf
